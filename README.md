@@ -1,2 +1,0 @@
-# DevilsKyuuna
-Kyuuna Bails 
